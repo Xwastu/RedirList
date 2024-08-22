@@ -2,11 +2,11 @@
 
 https://start.me/p/QLXl2j/agen-properti
 
-https://www.fcc.gov/fcc-bin/bye?https://bit.ly/4f4fEVM/
+https://www.fcc.gov/fcc-bin/bye?https://bit.ly/4f4fEVM
 
-http://www.motherpedia.com.au/?URL=https://bit.ly/4f4fEVM/
+http://www.motherpedia.com.au/?URL=https://bit.ly/4f4fEVM
 
-https://thisisstatic.com/?URL=https://bit.ly/4f4fEVM/
+https://thisisstatic.com/?URL=https://bit.ly/4f4fEVM
 
 https://supertramp.com/?URL=https://bit.ly/4f4fEVM
 
